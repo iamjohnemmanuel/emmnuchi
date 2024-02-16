@@ -1,2 +1,2 @@
-# eh?
-<h1>baka akala mo basta basta lang ako</h1>
+# tama?
+<h1>alam ko may kinakatakutan kadin</h1>
