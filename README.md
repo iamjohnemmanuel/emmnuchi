@@ -1,2 +1,2 @@
-# RANDOM
-<h1>PAG ISIPAN MO LAGI NG MARAMING BESES YUNG SASABIHIN AT GAGAWIN MO KIDDO</h1>
+# eh?
+<h1>baka akala mo basta basta lang ako</h1>
